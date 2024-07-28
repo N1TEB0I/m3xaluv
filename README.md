@@ -4,7 +4,10 @@
 
 ✎ // mea / vixen . . .
 -- i lowkey like to move it and move it
-- #meakey , peace! ! !
+- #meakey , c+h! ! !
 - te amo Rodrigo ୨୧ ## im an infant :-/
 
 𝇋 ˊᗜˋ 𝇌 ¨¨
+
+((barely online , but still active if in need :-P))
+. . . ᶻz hmm yeah video call
