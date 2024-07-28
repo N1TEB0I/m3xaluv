@@ -4,7 +4,8 @@
 
 
 
-![image](https://github.com/user-attachments/assets/b14440a6-a802-4c0e-90dc-fc2045f4b546)
+![image](https://github.com/user-attachments/assets/d2a8f43d-ba41-421e-94f7-dd5dd8319918)
+
 
 
 - te amo Rodrigo ୨୧ ## im an infant :-/
