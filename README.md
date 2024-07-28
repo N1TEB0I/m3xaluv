@@ -10,4 +10,6 @@
 𝇋 ˊᗜˋ 𝇌 ¨¨
 
 ((barely online , but still active if in need :-P))
+
+
 . . . ᶻz hmm yeah video call
